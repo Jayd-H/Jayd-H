@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jayd-H
 - 👀 I’m interested in ... woman
-- 🌱 I’m currently learning ... how to breath
+- 🌱 I’m currently learning ... how to breathe
 - 💞️ I’m looking to collaborate on ... nothing
 - 📫 How to reach me ... you don't
 
